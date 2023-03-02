@@ -1,2 +1,0 @@
-# hojadevida
-pagina de cv 
